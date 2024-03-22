@@ -29,7 +29,7 @@
 
 **[LEGO Dune Atreides Royal Ornithopter](https://www.lego.com/en-us/product/dune-atreides-royal-ornithopter-10327)**. Только недавно узнал, что такая штука вообще бывает и хотел бы заполучить однажды.
 
-**Набор серии [LEGO Architecture](https://www.lego.com/en-us/themes/architecture)**. У меня уже есть Нью-Йорк и Токио (которого почему-то нет на сайте).
+~~**Набор серии [LEGO Architecture](https://www.lego.com/en-us/themes/architecture)**. У меня уже есть Нью-Йорк и Токио (которого почему-то нет на сайте).~~
 
 **Индивидуальная беговая тренировка с [Александром Элкониным](https://era.run/about/coach/)**. Я тут бегаю третий месяц и всей снарягой уже вроде оброс, но вот на хорошую индивидуальную тренировку с тренером-врачом с удовольствием бы съездил.
 
